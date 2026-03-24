@@ -27,7 +27,7 @@ I build practical tools that solve real IT and support operations problems — n
 ---
 
 ## 📫 Let's connect
-- [LinkedIn](https://linkedin.com/in/YOUR_LINKEDIN_URL)
+- [LinkedIn](https://linkedin.com/in/FCastaneda8)
 
 ---
 
